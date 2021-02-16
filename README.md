@@ -1,1 +1,1 @@
-# Página de TyploMaquinon uwu
+# typlo.github.io
